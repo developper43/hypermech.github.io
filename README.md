@@ -1,1 +1,0 @@
-# hypermech.github.io
